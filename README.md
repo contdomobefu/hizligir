@@ -5,6 +5,12 @@
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
 </head>
 <body>
+ <a href="https://wwwhizlicasino330.com" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/Y9KUjD2.png" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="https://wwwhizlicasino330.com">
+    <img src="https://r.resimlink.com/Y9KUjD2.png" />
+</a>
+</a>
+
 
 
 
