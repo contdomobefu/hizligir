@@ -1,5 +1,5 @@
 
-#  <a href="">Hızlıcasino.com</a>
+#  <a href="https://wwwhizlicasino330.com">Hızlıcasino.com</a>
 
 <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
